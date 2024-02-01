@@ -13,7 +13,7 @@
 </p>
 
 <p align="left">
-  💌 Contactame2  ⤵️
+  💌 Contactame  ⤵️
 </p>
 
 <p align="left">
